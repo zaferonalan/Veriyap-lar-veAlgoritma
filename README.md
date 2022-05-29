@@ -1,1 +1,0 @@
-# Veriyap-lar-veAlgoritma
